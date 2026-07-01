@@ -6,4 +6,5 @@ bedrock for mobile but its for "testing" purposes
 # https://llaun.ch/en
 java cracked or original tlaucher
 
-# nothinghereyet - yeah
+# https://eaglercraft.com
+if you could but needs any device on mobile or pc.
